@@ -1,0 +1,1 @@
+La receta consiste en preparar un platano con crema al gusto, cuenta con varias opciones para que personalice al gusto.
